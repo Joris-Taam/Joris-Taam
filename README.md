@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐I'm Joris Taam<br>-💡I'm 23 years old<br>-🚩I'm from the Netherlands
+⭐I'm Joris Taam<br>-💡I'm 24 years old<br>-🚩I'm from the Netherlands
 
 
 ## 🌐 Socials:
